@@ -1,3 +1,0 @@
-CHURCH---CheatSheet
-===================
-under construction ...
